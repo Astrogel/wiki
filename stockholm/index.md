@@ -1,4 +1,4 @@
-# Homeeee
+# Home
 
 ## Events
 
